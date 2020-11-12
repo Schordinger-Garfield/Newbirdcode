@@ -1,0 +1,2 @@
+# Newbirdcode
+just a rookie
